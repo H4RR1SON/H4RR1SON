@@ -32,6 +32,5 @@ I specialize in the intersection of AI and high-stakes data analytics. My work f
 
 ---
 
-[LinkedIn](https://www.linkedin.com/in/harryjohnston02/) | [Portfolio](https://harryjohnston.com.au)
 
 *"I get obsessed with things."*
